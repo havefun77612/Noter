@@ -15,4 +15,4 @@ U can Add Any Type Of Characters Or Emojy in Your Note
 And Even Any Language 
 Enjoy The App :D 
 
-Author: HaveFun , Developed By :Hossam Ali 
+Author: HaveFun 
